@@ -1,0 +1,4 @@
+Violin Miniature by DavVvE on Thingiverse: https://www.thingiverse.com/thing:4068962
+
+Summary:
+Oh Hi, HelloHere is another miniature instrument, this time it's violinI love music and came up with an idea of miniature band, can't wait to see it all togather :PI really don't know what is motivating me but what better is there to do than that hahThe stand is made from 3 parts- you have to glue them.I used acrylic paints to paint it allAll my designs are free &gt; If you like what I do, please consider becoming my patreon :3https://www.patreon.com/DaveZoneI invite you to my instagram, I post there my creations ;Dhttps://www.instagram.com/3d_davej/Check out other designs ;Ddon't be shy and post your makes ;DFollow for more &lt;3
